@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bobbie8881
+- 👋 Hi, I’m Teng-Shao (Bobbie) Lu
 - 👀 I’m interested in ...
 - 📫 How to reach me b234b@yahoo.com.tw
 
